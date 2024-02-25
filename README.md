@@ -1,0 +1,2 @@
+# suci
+pinjam dulu seratus
